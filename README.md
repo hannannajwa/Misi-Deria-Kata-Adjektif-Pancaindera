@@ -1,0 +1,1 @@
+# Misi-Deria-Kata-Adjektif-Pancaindera
